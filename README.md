@@ -1,4 +1,4 @@
-<p align="center"><img src="https://image.pngaaa.com/799/2122799-middle.png" ></p>
+<p align="center"><img src="https://www.pngkit.com/png/full/353-3536377_with-all-this-content-available-in-one-place.png" ></p>
 
 <h1 align="center"> ⚒ ZEE5 STREAM SCRAPPER 🔐 </h1>
 
